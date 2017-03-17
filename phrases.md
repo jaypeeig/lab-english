@@ -1,3 +1,7 @@
 MARCH 2017
-I'm not even mad about it.
-Were about grab some snack actually.
+
+I'm not even mad about it. - ellie
+
+Were about grab some snack actually. -josh
+
+I got beef teriyaki - ellie
