@@ -6,4 +6,6 @@ Were about grab some snack actually. -josh
 
 I got beef teriyaki - ellie
 
-No worries - ellie
+No worries - elli
+
+Its not a big deal
