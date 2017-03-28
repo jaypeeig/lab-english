@@ -11,3 +11,5 @@ No worries - elli
 Its not a big deal
 
 Just a bit
+
+Lemen (Lemon) - ellie | eg. anong flavor ng candy mo? a: Lemen
