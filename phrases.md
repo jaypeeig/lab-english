@@ -13,3 +13,9 @@ Its not a big deal
 Just a bit
 
 Lemen (Lemon) - ellie | eg. anong flavor ng candy mo? a: Lemen
+
+what are you lookin at?
+
+It's not a rocket science.
+
+ecosystem
