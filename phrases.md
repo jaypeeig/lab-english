@@ -21,3 +21,4 @@
 - ["I just want you to say..](#)
 - [I dont even know what this is - ellie](#)
 - [Ab so lute ley](#)
+- [Its a colonial mentality stucked in my genes! -franz](#)
