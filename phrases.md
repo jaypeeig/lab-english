@@ -26,5 +26,8 @@
 - [But again] (#)
 - [Incredebly] (#)
 - [Good Point!] (#)
+
+## MAY 2017
 - [Do I look like I even care] (#)
 - [Parallax Error! - Ash] (#)
+- [Excuse me! Do you have a moment to talk about our and savior, C@##^@E@#$] (#)
