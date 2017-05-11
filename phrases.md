@@ -30,4 +30,5 @@
 ## MAY 2017
 - [Do I look like I even care] (#)
 - [Parallax Error! - Ash] (#)
-- [Excuse me! Do you have a moment to talk about our and savior, C@##^@E@#$] (#)
+- [Excuse me! Do you have a moment to talk about our lord and savior, C@##^@E@#$] (#)
+- [You have no idea, what I'm capable of] (#)
