@@ -34,3 +34,5 @@
 - [You have no idea, what I'm capable of] (#)
 - [How stressful it is](#)
 - [I get caught up in your heartstrings](#)
+- [Wow! solenn -ellie and cara] (#)
+- [I'm disappointed to those who break pinky swear promises](#)
