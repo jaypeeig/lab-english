@@ -52,3 +52,6 @@
 - [I've run the numbers in 50 different ways](#)
 - [Shut the fuck up virgin!](#)
 - [Gullible](#)
+
+## OCTOBER 2017
+- [Mental Facility](#)
