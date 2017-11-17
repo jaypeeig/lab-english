@@ -58,3 +58,5 @@
 
 ## NOVEMBER 2017
 - [Add to your Vocabs - Camille](#)
+- [Wasnt me](#)
+- [First of all](#)
