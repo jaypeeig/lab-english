@@ -45,7 +45,7 @@
 - [It surely hurt's, doesnt it?](#)
 
 ## JULY 2017
-- [Watcha doin? -cammile](#)
+- [Watcha doin? -camille](#)
 - [Low Tol -inna](#)
 - [Not sure about it](#)
 - [Me neither](#)
@@ -55,3 +55,6 @@
 
 ## OCTOBER 2017
 - [Mental Facility](#)
+
+## NOVEMBER 2017
+- [Add to your Vocabs - Camille](#)
