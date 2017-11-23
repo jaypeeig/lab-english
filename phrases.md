@@ -60,3 +60,4 @@
 - [Add to your Vocabs - Camille](#)
 - [Wasnt me](#)
 - [First of all](#)
+- [Gonna buy in gloriets](#)
