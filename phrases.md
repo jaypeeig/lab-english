@@ -62,3 +62,17 @@
 - [First of all](#)
 - [Gonna buy in gloriets](#)
 - [Know your shakespear](#)
+
+## DECEMBER 2017
+- [We're Young then! we make mistakes](#)
+- [We're new in the game](#)
+- [No input is as vivid as it came from own experience](#)
+- [Loud and clear](#)
+
+
+
+
+
+
+
+
