@@ -68,7 +68,8 @@
 - [We're new in the game](#)
 - [No input is as vivid as it came from own experience](#)
 - [Loud and clear](#)
-
+- [I'm gonna strike a conversation - Camille](#)
+- [Ofish | official](#)
 
 
 
