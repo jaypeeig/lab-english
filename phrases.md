@@ -60,8 +60,8 @@
 - [Add to your Vocabs - Camille](#)
 - [Wasnt me](#)
 - [First of all](#)
-- [Gonna buy in gloriets](#)
-- [Know your shakespear](#)
+- [Gonna buy in gloriets - Camille](#)
+- [Know your shakespeare - Zito](#)
 
 ## DECEMBER 2017
 - [We're Young then! we make mistakes](#)
@@ -69,7 +69,8 @@
 - [No input is as vivid as it came from own experience](#)
 - [Loud and clear](#)
 - [I'm gonna strike a conversation - Camille](#)
-- [Ofish | official](#)
+- [Ofish | official - Camille](#)
+- [Generic Bullshit Question - Zito](#)
 
 
 
