@@ -73,6 +73,9 @@
 - [Generic Bullshit Question - Zito](#)
 
 
+## JANUARY 2018
+- [condescend](#)
+- [G-BABS - Gulugod Baboy](#)
 
 
 
