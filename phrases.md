@@ -77,7 +77,8 @@
 - [condescend](#)
 - [G-BABS - Gulugod Baboy](#)
 - [Sorry! I dont mix drinks - Kelly](#)
-
+- [Equestrian - Ria](#)
+- [Patina - Ria](#)
 
 
 
