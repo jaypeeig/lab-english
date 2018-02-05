@@ -74,11 +74,13 @@
 
 
 ## JANUARY 2018
-- [condescend](#)
-- [G-BABS - Gulugod Baboy](#)
+- [condescend - Zito](#)
+- [G-BABS - Gulugod Baboy - Zito](#)
 - [Sorry! I dont mix drinks - Kelly](#)
 - [Equestrian - Ria](#)
 - [Patina - Ria](#)
 
+## FEBRUARY 2018
+- [Emotional Quotient - Yana](#)
 
 
