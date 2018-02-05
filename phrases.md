@@ -82,5 +82,5 @@
 
 ## FEBRUARY 2018
 - [Emotional Quotient - Yana](#)
-
+- [Social Stigma - Iana](#)
 
