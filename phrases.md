@@ -1,3 +1,7 @@
+## JULY 2019
+- [anathema to serverless](#)
+- [Got some spicy back and forth bickering](#)
+
 ## MAY 2019
 - [Flabbagasted. - anku](#)
 - [This is absolutely ghastly. - anku](#)
