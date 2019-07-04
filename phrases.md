@@ -1,6 +1,8 @@
 ## JULY 2019
 - [anathema to serverless](#)
 - [Got some spicy back and forth bickering](#)
+- [Just use soapy water and kill them by suffocation](#)
+
 
 ## MAY 2019
 - [Flabbagasted. - anku](#)
